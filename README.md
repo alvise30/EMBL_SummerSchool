@@ -1,1 +1,0 @@
-# EMBL_SummerSchool
